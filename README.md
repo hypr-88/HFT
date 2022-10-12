@@ -22,4 +22,4 @@ In exchange for competitive salaries and benefits, we do not require you to be i
 
 ## How to join
 
-It's not a strict format, but send a DM to @Louis_hyper88. You can complete the entire process within a few days.
+It's not a strict format, just send a DM to @Louis_hyper88 on Twitter to reach out. You can also join our Discord here: https://discord.gg/jHshh95a 
